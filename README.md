@@ -1,2 +1,2 @@
 # Portfoilio
-![task-2](https://github.com/user-attachments/assets/0400f4a8-9329-4dd7-9fde-1032ac86bc69)
+![task-2](https://github.com/user-attachments/assets/1aacadac-444c-4d64-a183-5249dd1b9e4e)
